@@ -1,4 +1,4 @@
-# Pro26
+# Shepherd's Pie
 
 This project is about how to make a shepherd's pie :
 
