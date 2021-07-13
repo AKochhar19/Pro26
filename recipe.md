@@ -1,4 +1,4 @@
-# Recipe for a shpherd's pie
+# Recipe for a shepherd's pie
 
 Heat oil in a large saucepan over medium-high heat. 
 Add onion, carrot and celery and cook, stirring, for 5 minutes or until soft. Add lamb mince and cook, stirring to break up any lumps, for 5 minutes or until lamb changes colour.
